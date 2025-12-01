@@ -4,7 +4,7 @@ I’m a **Business Analyst** with a foundation in UX and Product Thinking, passi
 
 With **3+ years of experience** in Business Analysis, UX Design, and Product Development, I work closely with cross-functional teams to translate business problems into structured, scalable product solutions.
 
-Currently, as a **BA – Project Lead**, I focus on optimizing workflows and driving operational efficiency for B2B projects in the hydraulic and pneumatic equipment industry.
+Currently, as a **BA**, I focus on optimizing workflows and driving operational efficiency for B2B projects in the hydraulic and pneumatic equipment industry.
 
 ---
 
